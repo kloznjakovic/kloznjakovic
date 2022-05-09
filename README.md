@@ -9,4 +9,4 @@
 - 🌱 I’m currently learning PowerBI
 - 📫 How to reach me: kristinaloznjakovic@gmail.com
 - 😄 Pronouns: she/her
-- ⚡ Fun facts: I was the president of Iowa's Womens Volleyball Club, I love to snowboard, and I speak 3 languages!
+- ⚡ Fun facts: I was the president of the Iowa Womens Volleyball Club, I love to snowboard, and I speak 3 languages!
